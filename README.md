@@ -2,4 +2,5 @@
 
 **Breaking Bad** — A thrilling story of transformation and consequences.  
 *Genre:* Crime, Drama  
-*Why I love it:* The storytelling and character arcs are unmatched!
+*Why I love it:* The storytelling and character arcs are great!
+“Why I love it: The storytelling and character arcs are incredible.”
